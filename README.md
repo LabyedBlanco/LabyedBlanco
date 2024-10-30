@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 i am currently working on some Ai horse shit .<br>🤝 i am looking to collaborate on some web freelance jobs<br>🤝 I’m looking for help with<br>🌱i am currently leaning some Devops techniques.<br>💬 Ask me about anything .
+🔭 i am currently working on some horse shit .<br>🤝 i am looking to collaborate on some web freelance jobs<br>🤝 I’m looking for help with<br>🌱i am currently leaning some Devops techniques.<br>💬 Ask me about anything .
 
 
 ## 🌐 Socials:
